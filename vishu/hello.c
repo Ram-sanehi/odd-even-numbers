@@ -6,3 +6,5 @@ int main(){
 // slkddddddddddddddddddddddddddddddddddddddddddddddddddddddddddweeeeeeeeeeeeeeeeerw
 
 //  elkdweodkcmcdskslowopoqplksm,skllk
+
+//  qlkjqoqwdo
